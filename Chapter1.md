@@ -1,6 +1,5 @@
 # 青衫湿
-by MindYourDick  
-***
+by MindYourDick
 ## 一.樱木，你的流川枫！
 
 学校本就不大的篮球场边上挤满了女孩子。
